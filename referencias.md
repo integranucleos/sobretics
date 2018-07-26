@@ -1,1 +1,1 @@
-(https://www.metropoles.com/vida-e-estilo/bem-estar/saude-bem-estar/dependencia-de-tecnologia-conheca-a-doenca-do-futuro)[https://www.metropoles.com/vida-e-estilo/bem-estar/saude-bem-estar/dependencia-de-tecnologia-conheca-a-doenca-do-futuro]
+* [https://www.metropoles.com/vida-e-estilo/bem-estar/saude-bem-estar/dependencia-de-tecnologia-conheca-a-doenca-do-futuro](https://www.metropoles.com/vida-e-estilo/bem-estar/saude-bem-estar/dependencia-de-tecnologia-conheca-a-doenca-do-futuro). Acesso em 10 de julho de 2018;
